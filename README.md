@@ -25,7 +25,7 @@
 ---
 
 ## 💼 Projects (Pinned)
-- **[Loading....]** –
+- https://github.com/bollampalli118/telugu-nlp-tools
 - More coming soon! Stay tuned 😎)*  
 
 ---
