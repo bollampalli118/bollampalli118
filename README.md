@@ -4,7 +4,7 @@
 
 📍 Hyderabad, India  
 📧 venugopal.bollampalli@gmail.com  
-🔗 [Asianet Author Page](https://telugu.asianetnews.com/author/venugopal-bollampalli) | [LinkedIn](https://www.linkedin.com/in/venugopalbollampalli)
+🔗 [About Me](https://telugu.asianetnews.com/author/venugopal-bollampalli) | [LinkedIn](https://www.linkedin.com/in/venugopalbollampalli)
 
 ---
 
